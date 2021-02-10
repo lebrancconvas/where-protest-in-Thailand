@@ -1,0 +1,1 @@
+# Where did Thai people use for protesting event.
